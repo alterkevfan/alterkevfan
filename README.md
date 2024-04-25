@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @alterkevfan
-- Since over 50 years I am a Fan of the German ice hocky club KEV playing in the DEL
+- Since over 60 years I am a Fan of the German ice hocky club KEV playing in the DEL
 - 👀 I’m interested in CMS, such like Joomla etc.
 - 🌱 I’m currently learning daily more about creating internetsites
 - 💞️ I’m looking to collaborate on interesting ice hockey portals
